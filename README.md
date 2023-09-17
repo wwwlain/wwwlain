@@ -1,0 +1,1 @@
+MONEY | DRUGS | WOMEN
